@@ -73,7 +73,7 @@ I bring adaptability, professionalism, and a proactive mindset to every challeng
 ---
 
 ## Curriculum Vitae  
-[Download CV (PDF)](./PJ Human CV.pdf)  
+[Download CV (PDF)](./PJ_Human_CV.pdf)  
 
 ---
 
